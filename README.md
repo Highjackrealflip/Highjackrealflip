@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Highjackrealflip
-- 👀 I’m interested in ...-
+- 👀 I’m interested in ...slowlife
 - 🌱 I’m currently learning ... -
-- 💞️ I’m looking to collaborate on ... -
-- 📫 How to reach me ... -
+- 💞️ I’m looking to collaborate on ... L
+- 📫 How to reach me ... FB:Wachirawit Chantamin
 
 <!---
 Highjackrealflip/Highjackrealflip is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
